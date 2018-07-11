@@ -73,3 +73,8 @@
 * Kill Me Baby
 * Aho Girl
 * Tonari No Seki Kun
+* Kimi No Nawa (Movie)
+* 5 Centimeters Per Second (Movie)
+* Children Who Chase Lost Voices (Movie)
+* Garden Of Words (Movie)
+* In This Corner Of The World (Movie)
