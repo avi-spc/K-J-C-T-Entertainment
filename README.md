@@ -75,6 +75,7 @@
 * Tonari No Seki Kun
 * Kimi No Nawa (Movie)
 * 5 Centimeters Per Second (Movie)
-* Children Who Chase Lost Voices (Movie)
+* Children Who Chase Lost Voices From Deep Below (Movie)
 * Garden Of Words (Movie)
 * In This Corner Of The World (Movie)
+* The Place Promised in Our Early Days (Movie)
