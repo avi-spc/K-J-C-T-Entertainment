@@ -73,6 +73,7 @@
 * Kill Me Baby
 * Aho Girl
 * Tonari No Seki Kun
+* Future Diary
 * Kimi No Nawa (Movie)
 * 5 Centimeters Per Second (Movie)
 * Children Who Chase Lost Voices From Deep Below (Movie)
